@@ -1,0 +1,1 @@
+I do not own any of the resources used for developing this webpage, including the Youtube video "NICK DRAKE Essential Songs" by ArtMorpheus and the soundtrack by Nick Drake. Thanks.
